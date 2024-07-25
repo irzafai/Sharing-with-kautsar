@@ -1,3 +1,2 @@
-# Sharing-with-kautsar
-
-Ga tau bikin apa sama kautsar
+# Sharing-with-
+halo irza
